@@ -1,1 +1,1 @@
-<a href="https://nmgdkl.github.io/parallax-website/">CLICK HERE </a>
+<a href="https://nmgdkl.github.io/Voltran-Project/">CLICK HERE </a>
